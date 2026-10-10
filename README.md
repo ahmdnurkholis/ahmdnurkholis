@@ -1,5 +1,3 @@
-- @ahmdnurkholis
-- IG:@_ahmdnrkhls
 
 
 
